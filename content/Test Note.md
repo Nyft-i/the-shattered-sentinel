@@ -1,1 +1,2 @@
-WOAH WHAT IF THERE WAS LORE HERE![[Chapter 4 Map.png]]
+WOAH WHAT IF THERE WAS LORE HERE 
+![[Chapter 4 Map.png]]
